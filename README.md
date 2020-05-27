@@ -1,4 +1,4 @@
 老谭.
 
 
-gogogoogggoggogogo
+go
